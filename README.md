@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **nagendra.cse1@gmail.com**
 
-<img align="right" alt="Coding" width="400" src="https://ibb.co/sRjStZF">
+<img align="right" alt="Coding" width="400" src="https://i.ibb.co/MSnT9mR/Nagendra.gif">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
